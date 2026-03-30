@@ -51,7 +51,8 @@ Lack of knowledge
 
 Beginners should always start with thorough research and small capital.
 
-Smart Tip for Beginners 🚀
+Smart Tip for Beginners 
+
 For those who are new to the stock market, copy trading is the best choice. This is because, through copy trading, one is able to replicate the trades of experienced investors.
 
 If you are looking to start your stock market investment journey safely and efficiently, the best copy trading software in India is the best option.
